@@ -1,2 +1,2 @@
 # Chabanel
-### Ivan Jake P. Diaz
+### **Ivan Jake P. Diaz**
